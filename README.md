@@ -1,2 +1,2 @@
 # Constellis-Group-is-a-Pleiadian-Takeover
-Constellis Group is a Pleiadian Takeover
+Constellis Group is a Pleiadian Takeove. Pleiadians are physically weak beings who steal money, energy, blood, and hormones of others to heal themselves from the physical stress of this dense planet. The only way for a Pleiadian to live on this planet or other dense planets is to drink the blood of humans who have become accustomed to the tighter atomic rotations created by living under our gravity.
